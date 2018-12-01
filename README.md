@@ -1,1 +1,0 @@
-# davidgohel.github.io
